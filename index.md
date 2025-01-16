@@ -1,4 +1,4 @@
 ---
-title: notstableguy.dev
+title: notstableguy's profile
 ---
 
